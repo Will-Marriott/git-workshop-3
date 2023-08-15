@@ -6,3 +6,10 @@ There once was a man named Mickey Who grew lots of weed that was sticky He wante
 
 They tried to blackmail and bribe him They tried to rob and outsmart him But Mickey was clever and tough He knew how to deal with their bluff He had his loyal Ray to guide him
 
+
+
+He also had his wife Rosalind Who ran a garage and could fend She helped him fight off the bad guys With her wit and her guns as allies She was his partner till the end
+
+ 
+
+But who was the one telling this tale? It was Fletcher, a sneaky blackmailer He had a screenplay called Bush That he hoped to sell for some cash But he ended up in a container
